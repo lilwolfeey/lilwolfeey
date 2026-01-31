@@ -1,1 +1,1 @@
-! [image alt]()
+![image alt]()
