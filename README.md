@@ -4,5 +4,8 @@
 
 
 
-                         " l-l-legendary  ,,, ! "
+                     •┈┈┈••✦ " l-l-legendary  ,,, ! " ✦••┈┈┈•
+
+
+
 
