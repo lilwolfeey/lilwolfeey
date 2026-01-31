@@ -50,6 +50,8 @@
 ⊹ ɪᴍ ɴᴏᴛ ɪɴᴛᴇʀᴇsᴛᴇᴅ ɪɴ ᴀɴʏ ʀᴏʟᴇ-ᴘʟᴀʏɪɴɢ - ɪᴛs ᴋɪɴᴅᴀ ᴄʀɪɴɢᴇ ᴍᴇ ᴜᴘ  ,, sᴏᴡᴡʏʏ ,, 
 
 ⊹ ɪᴍ ᴠᴇʀʏ ᴋᴇᴡʟ ʟᴏʟ  ,,  !
- 
+
+
+![image alt](https://github.com/lilwolfeey/lilwolfeey/blob/main/c6e3d30d03442c5fbf5c4174cc300ae1.jpg?raw=true)
 
 
